@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=878787&label=✦+bones)
+![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=313131&label=✦+bones)
 
 ![til](https://files.catbox.moe/z7igyt.gif)
 
