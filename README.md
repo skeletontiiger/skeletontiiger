@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=878787&label=✦+bones)
 
-![til]([https://files.catbox.moe/3iu5z8.gif](https://files.catbox.moe/z7igyt.gif))
+![til](https://files.catbox.moe/z7igyt.gif)
 
 
 
