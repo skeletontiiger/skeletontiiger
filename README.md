@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=313131&label=✦+bones)
+![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=313131&label=antares+mira+sun)
 
-![til](https://files.catbox.moe/z7igyt.gif)
+![til](https://files.catbox.moe/jyxlxf.gif)
 
 
 
