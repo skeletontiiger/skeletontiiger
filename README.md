@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=313131&label=antares+mira+sun)
+![](https://komarev.com/ghpvc/?username=skeletontiiger&style=flat&color=896633&label=antares+mira+sun)
 
 ![til](https://files.catbox.moe/jyxlxf.gif)
 
